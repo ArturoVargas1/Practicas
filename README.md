@@ -1,1 +1,0 @@
-# practica no. 1
